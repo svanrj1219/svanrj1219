@@ -1,6 +1,6 @@
 Hi there 👋  
 🔭 I study in Tianshui  
-🌱 I am currently studying photography 记录美好生活  
+📷 I am currently studying photography 记录美好生活  
 💬 Ask me about coding,photography  
 📫 How to reach me:[bilibili](https://space.bilibili.com/158712275)  
 🌈 my email: <kenvinfei@outlook.com>
